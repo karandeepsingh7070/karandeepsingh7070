@@ -1,5 +1,5 @@
 # 💫 About Me:
-Always Learn, Code, Sleep & Repeat<br>connect with me at @karandeepsinghworkspace@gmail.com<br>link - https://www.karandeepsingh.info/
+Learn, Code, Sleep & Repeat<br>connect with me at @karandeepsinghworkspace@gmail.com<br>link - https://www.karandeepsingh.info/
 
 
 ## 🌐 Socials:
