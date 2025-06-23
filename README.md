@@ -1,4 +1,4 @@
-Learn, Code, Sleep & Repeat<br>connect with me at @karandeepsinghworkspace@gmail.com<br>link - https://www.karandeepsingh.info/
+Learn, Code, Sleep & Repeat<br>connect with me at @karandeepsinghworkspace@gmail.com<br>link - https://www.karandeepsingh.info/ <br> Dev Community - https://dev.to/karandeepsingh7070 
 
 
 ## 🌐 Socials:
